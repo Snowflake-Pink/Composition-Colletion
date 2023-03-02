@@ -1,5 +1,6 @@
-- 如有侵权请及时留言告知我，本摘抄本使用 CC BY-NC-SA 协议。
+- 如有侵权请及时留言告知我，本摘抄本使用 **CC BY-NC-SA** 协议。
 - [PDF](https://cloud.17shou.vip/?/%E4%B8%AA%E4%BA%BA%E6%96%87%E4%BB%B6/17shou_VIP%27s%20Blog/%E4%B8%8B%E8%BD%BD/%E6%91%98%E6%8A%84%E6%9C%AC.pdf)$（2019.6.23）$
+
 
 ------
 
